@@ -7,7 +7,7 @@
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#523294}About Me.}}$ ⊹ ࣪ ˖ </summary> Micro / Lyra
   <br>She/her they/them he/him it/its
-  <br>19
+  <br>20
   <br>Genderfluid & bisexual
   <br>Graduated! Studied forensics and law
   <br> </details> <details align="center">
