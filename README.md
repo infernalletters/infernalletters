@@ -34,7 +34,6 @@
   <br>c+h is ok unless said otherwise
   <br>Don't include me in ship roleplays. I don't feel comfortable being put in those if i dont know you
   <br>I WILL match your tone if youre being annoying. Treat others how you'd like to be treated
-  <br>Please don't interact with me if you ship anything with redson, doctor strange and elder price <br>
   <br>Whispers are turned off in the safe server but on in 18+.
   <br>I have no interest in making friends on ponytown <br></details> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#523294}Soulbonds and Kins}}$ㅤ⊹ ࣪ ˖ </summary> Soulbonds- RedSon, Stephen Strange, Shadow Milk cookie, Mystic Flour cookie, Ordis
